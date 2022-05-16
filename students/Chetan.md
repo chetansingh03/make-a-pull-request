@@ -1,5 +1,0 @@
-# chetan singh
-
-# practice
-
-# ****
